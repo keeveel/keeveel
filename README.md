@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @keeveel
-- 👀 I’m interested in Hiking, mountains and play Dota 2
+- 👀 I’m interested in hiking, driving and playing any games
 - 🌱 I’m currently learning SQL, Python
 - 💞️ I’m looking to collaborate on work, on interesting experience
 - 📫 How to reach me: telegram - @keeveel, email - djuma94@gmail.com
